@@ -2,4 +2,7 @@
 
 𝖘𝖊𝖓𝖓𝖆🧘🏻‍♂️
 
-ig @sennacomsono
+ig @sennacomsono 
+
+
+![](https://tenor.com/bMEoW.gif)
